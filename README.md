@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sajalsenapati50@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GpOcze59wMMut2T4kT995KbOOcQpwGRW/view?usp=sharing](https://drive.google.com/file/d/1GpOcze59wMMut2T4kT995KbOOcQpwGRW/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17DDVfjuW_lppyscC1s_Qw1TK6f80AFtz/view?usp=sharing](https://drive.google.com/file/d/17DDVfjuW_lppyscC1s_Qw1TK6f80AFtz/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
